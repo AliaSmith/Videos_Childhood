@@ -3,3 +3,5 @@ A collection of videos with 3 siblings.
     Okay, this is just some video collections. Hopefully I'll be able to access them on a better computer to download and use as I please to contribute to the childhood sibling hall of fame.
 EDIT: 2018.09.23
     I just wanted to see if I could edit this without screwing up. LOL.
+EDIT: 2018.09.23.8:53.p.
+    How hard is it to put the time after the date? Dingus.
